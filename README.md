@@ -1,3 +1,3 @@
-# Oblig-2-Gruppeinnlevering-
+# Obliger – Gruppeinnlevering
 
 Gruppemedlemmer: Maria, Isabel, Øyvind, Victoria
